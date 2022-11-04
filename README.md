@@ -35,5 +35,6 @@ _Im linken Glas befindet sich Fusel auf dem Sauerteig._
 ![](/img/PXL_20221103_115710045.MP.jpg)
 
 8. Lasse die Teige bei 20°C bis 24°C ruhen, bis der Teig etwa 1/3 bis 2/3 mehr Volumen hat. Dies dauert **je nach Temperatur** ein bis vier Stunden. Nun sollten auch deutlich Blasen zu erkennen sein.
+![](/img/PXL_20221103_150040258.MP.jpg)
 
 9. Platziere die Teige wieder bei ca. 5°C im Kühlschrank. Hebe den alten Sauerteig am Besten als Backup mit im Kühlschrank auf (falls möglich). Den Teig von vor zwei Generationen kannst du wegwerfen (oder hast du sowieso schon um ein sauberes Glas zu haben).
